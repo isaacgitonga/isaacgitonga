@@ -32,6 +32,6 @@ I care less about what's fashionable and more about what still holds up when tra
 
 ### Get in touch
 
-Open to freelance and contract work. Reach me on [X](https://x.com/_isaacgitonga), through my [portfolio](https://isaacgitonga.com), or by email at [isaac@isaacgitonga.com](mailto:isaac@isaacgitonga.com).
+Open to freelance and contract work. Reach me on [X](https://x.com/_isaacgitonga), through my [portfolio](https://isaacgitonga.com), or by email at [advisory@isaacgitonga.com](mailto:advisory@isaacgitonga.com).
 
 🌐 [isaacgitonga.com](https://isaacgitonga.com) · 💼 [LinkedIn](https://www.linkedin.com/in/isaacgitonga) · 𝕏 [@_isaacgitonga](https://x.com/_isaacgitonga)
